@@ -1,1 +1,1 @@
-5 functions q se pueden volver a utilizar...creo xd.
+5 funciones pragmaticas que se pueden volver a reutilizar...creo xd.
